@@ -1,7 +1,9 @@
-SPAM UNLIMITED
-Author   :Risky Ali
-Telegram :t.me/ER_Sky7
-Whatsapp :08522531****
+SPAM UNLIMITED \n
+
+
+Author   :Risky Ali\n
+Telegram :t.me/ER_Sky7\n
+Whatsapp :08522531****\n\n
 
 .....Gunakan Dengan Bijak.....
 
